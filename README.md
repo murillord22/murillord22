@@ -1,7 +1,7 @@
 
 # Em construção...
 <div align="center" style="display: inline_block"><br>
-  <img width="1173" height="959" alt="{33E30BE5-5F6A-477B-AE86-300DDC005E64}" src="https://github.com/user-attachments/assets/e1d5cd70-5d60-4e26-bf13-da8ff0c8c404" />
+  <img width="1173" height="959"  src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcST8Zh8EtXDevqVkk7tOm6wKWg4YR-n-3uW5kyzFJy10w&s=10" />
 
 </div>
 <div align="center" style="display:flex; justify-content: space-evenly;">
