@@ -1,3 +1,5 @@
-![Meu banner](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e760df05-ab69-4bbb-b4d5-ace6f5cdc4d5/da0qdpv-378b0afd-561b-4f73-a3f1-da72bf5e19f2.png/v1/fill/w_720,h_301,q_80,strp/hatsune_miku_banner_signature_by_tatsuya_d_da0qdpv-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9MzAxIiwicGF0aCI6Ii9mL2U3NjBkZjA1LWFiNjktNGJiYi1iNGQ1LWFjZTZmNWNkYzRkNS9kYTBxZHB2LTM3OGIwYWZkLTU2MWItNGY3My1hM2YxLWRhNzJiZjVlMTlmMi5wbmciLCJ3aWR0aCI6Ijw9NzIwIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmltYWdlLm9wZXJhdGlvbnMiXX0.mo6BFSd44R2cQOS6cizfq2Vy1tDl6fezr_obsGIFTSE)
+![Meu banner](https://i.pinimg.com/736x/4c/b8/c5/4cb8c5c2ded9f6b65fdee562e08e76d1.jpg)
 
-# <img src="https://emojis.slackmojis.com/emojis/images/1531849430/4246/blob-sunglasses.gif?1531849430" width="30"/> me chamo murilo! 
+# <img src="https://emojis.slackmojis.com/emojis/images/1787066371/143785/vietnam-flashbacks.png?1787066371" width="50" height="50"/> e o caba vai endoida é
+* Aluno de informática da EEEp DRM
+* Gosto de larpar
