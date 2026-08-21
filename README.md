@@ -1,5 +1,5 @@
-![Meu banner](https://i.pinimg.com/736x/4c/b8/c5/4cb8c5c2ded9f6b65fdee562e08e76d1.jpg)
+ <img src="https://i.pinimg.com/736x/50/93/1c/50931cb02dd0b553b24305beef61421f.jpg" width="734" height="244"/>
 
-# <img src="https://emojis.slackmojis.com/emojis/images/1787066371/143785/vietnam-flashbacks.png?1787066371" width="50" height="50"/> e o caba vai endoida é
+# <img src="https://slackmojis.com/emojis/429-troll/download" width="50" height="50"/> e o caba vai endoida é
 * Aluno de informática da EEEp DRM
 * Gosto de larpar 🧟‍♂️
