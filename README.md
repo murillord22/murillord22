@@ -2,4 +2,4 @@
 
 # <img src="https://emojis.slackmojis.com/emojis/images/1787066371/143785/vietnam-flashbacks.png?1787066371" width="50" height="50"/> e o caba vai endoida é
 * Aluno de informática da EEEp DRM
-* Gosto de larpar
+* Gosto de larpar 🧟‍♂️
